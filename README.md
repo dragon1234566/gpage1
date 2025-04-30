@@ -1,1 +1,1 @@
-amaya monsrrat diaz hernandez -grado:2 y grupo:b 
+amaya monserrat diaz hernandez 2b
